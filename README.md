@@ -4,6 +4,7 @@ Welcome to **TX3Funding Coupon Codes**, your trusted source for the **latest TX3
 Save on your prop firm challenge fees and start your funded trading journey with **working TX3Funding coupon codes**.
 
 All coupon information listed here is **verified from CouponTerra** to ensure accuracy and reliability.
+
 👉 **TX3Funding Official Promo Code List**  
 https://www.couponterra.com/coupons/tx3funding.com
 
