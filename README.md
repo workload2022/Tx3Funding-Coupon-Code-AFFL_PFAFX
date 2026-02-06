@@ -1,4 +1,4 @@
-# TX3Funding Coupon Codes & Discounts 2026
+# TX3Funding Coupon Codes & Discounts 2026 -- AFFL_PFAFX
 
 Welcome to **TX3Funding Coupon Codes**, your trusted source for the **latest TX3Funding discounts, promo codes, and verified offers**.  
 Save on your prop firm challenge fees and start your funded trading journey with **working TX3Funding coupon codes**.
