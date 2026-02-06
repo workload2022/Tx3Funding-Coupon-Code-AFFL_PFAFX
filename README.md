@@ -6,6 +6,7 @@ Save on your prop firm challenge fees and start your funded trading journey with
 All coupon information listed here is **verified from CouponTerra** to ensure accuracy and reliability.
 👉 **TX3Funding Official Promo Code List**  
 https://www.couponterra.com/coupons/tx3funding.com
+
 👉 **TX3Funding Official Challenge Page**  
 https://dashboard.fx.tx3funding.com/new-challenge?referral=AFR_283679AD54  
 
